@@ -2,7 +2,7 @@
 - 👀 I’m interested in Final Fantasy and Monster High.
 - 🌱 I’m currently learning Games and Animation.
 - 💞️ I’m looking to collaborate on Nothing.
-- 📫 How to reach me Don't.
+- 📫 How to reach me 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Genesis Rhapsodos is the gift of the godess.
 
