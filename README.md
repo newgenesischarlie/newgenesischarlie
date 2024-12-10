@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @newgenesischarlie
 - 👀 I’m interested in Final Fantasy and Monster High.
 - 🌱 I’m currently learning Games and Animation.
-- 💞️ I’m looking to collaborate on Nothing.
-- 📫 How to reach me 
-- 😄 Pronouns: she/her
+- 💞️ I’m looking to collaborate on Nothing RN.
+- 📫 How to reach me charlottebrightbuisness@gmail.com
+- 😄 Pronouns: she/they
 - ⚡ Fun fact: Genesis Rhapsodos is the gift of the godess.
 
 <!---
