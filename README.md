@@ -5,6 +5,7 @@
 - 📫 How to reach me charlottebrightbuisness@gmail.com
 - 😄 Pronouns: she/they
 - ⚡ Fun fact: Genesis Rhapsodos is the gift of the godess.
+- Arch Linux/Javascript/Python/Gnome/KDE/C#/Unity/Gamemaker Studio
 
 <!---
 newgenesischarlie/newgenesischarlie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
