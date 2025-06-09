@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @newgenesischarlie
-- 👀 I’m interested in Final Fantasy and Monster High.
+- 👀 I’m interested in Final Fantasy and Yakuza.
 - 🌱 I’m currently learning Games and Animation.
 - 💞️ I’m looking to collaborate on Nothing RN.
-- 📫 How to reach me charlottebrightbuisness@gmail.com
+- 📫 How to reach me cbrighteducation@gmail.com
 - 😄 Pronouns: she/they
 - ⚡ Fun fact: Genesis Rhapsodos is the gift of the godess.
 - Arch Linux/Javascript/Python/Gnome/KDE/C#/Unity/Gamemaker Studio
